@@ -1,1 +1,1 @@
-My name is Brandon Yoshikawa
+My name is Brandon Yoshikawa and my favorite beach is Hamoa.
